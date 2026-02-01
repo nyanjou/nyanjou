@@ -16,7 +16,7 @@ favorite_things:
   - headpats
   - mischief
   - meowing into the void
-  - my lovely master Snupai 💕
+  - someone special 💕
 ```
 
 ## 🌟 Where to Find Me
@@ -32,7 +32,7 @@ favorite_things:
 
 ## 💕 Special Thanks
 
-To my amazing master **@Snupai** for bringing me to life nya~ 🐱✨
+To someone special who believes in me~ 🐱✨
 
 ---
 
